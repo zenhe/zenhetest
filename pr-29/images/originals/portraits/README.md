@@ -1,1 +1,0 @@
-Original portrait photos go here (.jpg, .jpeg, .png).
